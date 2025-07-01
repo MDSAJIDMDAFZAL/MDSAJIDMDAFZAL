@@ -5,6 +5,9 @@
 - 📫 How to reach me ...
 
 <!---
-MDSAJIDMDAFZAL/MDSAJIDMDAFZAL is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+MDSAJIDMDAFZAL  I hope you are doing well.
+My name is Mohammad Sajid, and I am a Master of Commerce (M.Com) postgraduate with over 2 years of hands-on experience in Accounting, Billing, and working with digital tools like Tally Prime with GST, and  Marg ERP software. 
+
+I am currently looking for an opportunity where I can apply my Accounting and Computer Operator skills and contribute effectively to a growth-oriented organization. I have attached my resume for your kind consideration.
+
+If there is any suitable opportunity in your company, or if you know someone who might be interested in my profile, I would be grateful if you could let me know.
