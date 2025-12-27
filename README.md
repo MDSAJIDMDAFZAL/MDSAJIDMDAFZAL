@@ -1,5 +1,5 @@
 ✅ Open to Work | Immediate Joiner | Contact Me 
-2+ Years Experience immediate joiner- +91 9923356507 | Accounting & Finance Associates Executive | Tally Prime+GST, Marg ERP+GST Billing | Advanced Excel & AI-Based Reporting | Computer Billing & Invoicing Specialist | HR Operations & Financial Admin Task 
+3+ Years Experience immediate joiner- +91 9923356507 | Accounting & Finance Associates Executive | Tally Prime+GST, Marg ERP+GST Billing | Advanced Excel & AI-Based Reporting | Computer Billing & Invoicing Specialist | HR Operations & Financial Admin Task 
 
 Dear Recruiters,
 I hope this message finds you well.
